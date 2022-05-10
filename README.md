@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zane Ackermann
-- 👀 I’m interested in Making Money
+- 👀 I’m interested in Making Cash Money💸💸💲💲💵💵💵🪙🪙🪙💰💰💰💰
 - 🌱 I’m currently learning C++
 - 📫 How to reach me Okhela.z@gmail.com
 
